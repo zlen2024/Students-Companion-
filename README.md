@@ -1,4 +1,4 @@
-# Students-Companion-
+# Learn GPT-
 
 **Privacy Policy**
 
